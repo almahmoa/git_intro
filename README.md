@@ -1,1 +1,2 @@
 Abraham Almahmoud
+almahmoa@oregonstate.edu
